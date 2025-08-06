@@ -5,6 +5,6 @@ Hello
 - 👯 I am looking to collaborate on projects related to safety and health at work mainly and I am willing to collaborate on others.
 - 🤔 I'm looking for ideas to train myself and give the best of my ***.
 - 💬 Ask me how I'm balancing **career growth** with **family life**.
-- 📫 How to contact me: yenire86@gmaail.com
+- 📫 How to contact me: yenirerodriguezriera@gmail.com
 - ⚡ Fun fact: I love **creativity** and **crafts**!
  BYE!
